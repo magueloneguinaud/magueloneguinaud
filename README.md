@@ -1,4 +1,6 @@
-👋My name is Maguelone and I'm a student at the Ada Tech School studying to become a developer. 
+Welcome to my Github, Who I am ?
+
+👋My name is Maguelone and I'm a student at the @Ada Tech School studying to become a developer. 
 
 👉After more than 5 years in event catering and 10 years in the recruitment sector, I had the opportunity to retrain, and the @Ada Tech School team was the first to have confidence in me and support me in the transition.
 
