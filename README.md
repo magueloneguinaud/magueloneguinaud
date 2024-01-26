@@ -15,4 +15,4 @@ So I take part in one-off events and I'm involved all year with the Marraine & V
 
 🕵️‍♀️What I'm looking for? A company that trusts me and will support me in this change of direction!
 
- ✉️You can send me a message [on Linkedin](https://[adatechschool.fr](https://www.linkedin.com/in/magueloneguinaud/)
+ ✉️You can send me a message [on Linkedin](https://www.linkedin.com/in/magueloneguinaud/)
